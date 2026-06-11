@@ -58,7 +58,7 @@ The Bottom Line
 
 Dubai is extremely lively and everything happens very quickly. The business here does not even stop for cleaning schedules, scaffolding delays, or weather interruptions.First Drone, the drone cleaning company in Dubai, understands that. The building cleaning services offered by First Drone in Dubai are based on speed, precision, and minimum downtime so your business can be operating as usual while the building is being cleaned. No ladders and no risk - all in one!
 
-Firstly, if your building, hotel, or hospital calls for top-notch drone cleaning services in Dubai, then the only thing remaining is to make a call. Check out First Drone UAE" 
+Firstly, if your building, hotel, or hospitalcalls for top-notch [drone cleaning services in Dubai](https://firstdrone.ae/services/), then the only thing remaining is to [make a call](https://firstdrone.ae/contact-us/). Check out [First Drone UAE](https://firstdrone.ae/)
 
 Frequently Asked Questions
 
